@@ -1,2 +1,12 @@
 # window
+
+neues volk
+https://en.wikipedia.org/wiki/Neues_Volk
+
+# achmed aboutaleb
+https://nl.wikipedia.org/wiki/Ahmed_Aboutaleb
+
+# nederland
+https://nl.wikipedia.org/wiki/Nederland
+
 2002-2021 dutch exterminations camps
